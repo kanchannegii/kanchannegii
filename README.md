@@ -1,5 +1,5 @@
    Hie, I’m @kanchannegii
--  I'm always learning new things
+-  I'm always curious to learn new things
 -  I love building real-world projects
 -  Love to learn and explore new things
 - 💡"Self-motivated mind with a maker’s heart"
